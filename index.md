@@ -12,31 +12,27 @@ I'm Max and I'm available in the Ivy/Charlottesville area for day-time dog walki
 
 Nearly all dogs agree that they want more walks!
 
-### Email me your preferred times.
-
-
-### Walks *✿°❀⋆.ೃ࿔*:･. 
-### Mon, Mar 24 – Fri, Mar 28 
-
-* * *
-
-- Monday
-  - ✦ 𝓒𝓱𝓪𝓻𝓵𝓲𝓮 ✦ -- 12pm
-    - 🌲🌿🐎 Hills
-- Tuesday
-  - ✦ 𝓒𝓱𝓪𝓻𝓵𝓲𝓮 ✦ -- 12pm,
-    - 🦉🦇🐿 Woods
-- Wednesday
-  - ✦ 𝓒𝓱𝓪𝓻𝓵𝓲𝓮 ✦ -- 12pm
-    - 🌲🌿🐎 Hills
-- Thursday
-  - ✦ 𝓒𝓱𝓪𝓻𝓵𝓲𝓮 ✦ -- 12pm,
-    - 🦉🦇🐿 Woods
-- Friday
-  - ✦ 𝓒𝓱𝓪𝓻𝓵𝓲𝓮 ✦ -- 12pm
-    - 🌲🌿🐎 Hills
-   
-
 ```
 $30/day, 30 minute walk
 ```
+
+### Email me your preferred times.
+
+* * *
+
+
+## 🐾 Walks *✿°❀⋆.ೃ࿔*:･. 
+### Mon, Mar 24 – Fri, Mar 28 
+
+- Monday
+𝓒𝓱𝓪𝓻𝓵𝓲𝓮 -- 12pm -- 🌲🌿🐎 Hills
+- Tuesday
+𝓒𝓱𝓪𝓻𝓵𝓲𝓮 -- 12pm -- 🦉🦇🐿 Woods
+- Wednesday
+𝓒𝓱𝓪𝓻𝓵𝓲𝓮 -- 12pm -- 🌲🌿🐎 Hills
+- Thursday
+𝓒𝓱𝓪𝓻𝓵𝓲𝓮 -- 12pm -- 🦉🦇🐿 Woods
+- Friday
+𝓒𝓱𝓪𝓻𝓵𝓲𝓮 -- 12pm -- 🌲🌿🐎 Hills
+
+   
