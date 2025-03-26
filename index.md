@@ -12,11 +12,10 @@ layout: default
 
 Nearly all dogs agree that they want more walks!
 
-* * *
 
 ```
 
-$30/day, 30 minute walk
+🐶 ˗ˏˋ ♡ ˎˊ˗ 🐕🐕‍🦺🦮🐩    $30/day, 30 minute walk
 
 ```
 
