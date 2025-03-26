@@ -2,6 +2,8 @@
 layout: default
 ---
 
+![CHL](https://dogwalks.mxc.lv/assets/img/chl.jpg)
+
 Text can be **bold**, _italic_, or ~~strikethrough~~.
 
 [Link to another page](./another-page.html).
@@ -53,7 +55,6 @@ This is a normal paragraph following a header. GitHub is a code hosting platform
 
 ### Large image
 
-![Branching](https://guides.github.com/activities/hello-world/branching.png)
 
 
 ### Definition lists can be used with HTML syntax.
