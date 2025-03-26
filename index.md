@@ -8,15 +8,16 @@ It can be **tough** to get enough steps a day for your pup's _energy_ and _healt
 
 I'm Max and I'm available in the Ivy/Charlottesville area for day-time dog walking.
 
-### Email me at [MAX@MXC.LV](mailto:max@mxc.lv) to start scheduling.
+## Email me at [max@mxc.lv](mailto:max@mxc.lv) to start scheduling.
 
 Nearly all dogs agree that they want more walks!
 
-## Email me your preferred times and I'll add you to the schedule.
+### Email me your preferred times.
 
 
-### Walks: Mon, Mar 24 – Fri, Mar 28 
-*✿°❀⋆.ೃ࿔*:･.
+### Walks *✿°❀⋆.ೃ࿔*:･. 
+### Mon, Mar 24 – Fri, Mar 28 
+
 * * *
 
 - Monday
