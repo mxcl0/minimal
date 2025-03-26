@@ -37,4 +37,7 @@ $30/day, 30 minute walk
 - Friday
   - 𝓒𝓱𝓪𝓻𝓵𝓲𝓮 -- 12pm -- 🌲🌿🐎 Hills
 
+![CHL2](https://dogwalks.mxc.lv/assets/img/chl2.jpg)
+
+
    
