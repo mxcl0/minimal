@@ -13,8 +13,6 @@ layout: default
 Nearly all dogs agree that they want more walks!
 
 * * *
-* * *
-* * *
 
 ```
 
@@ -22,13 +20,10 @@ $30/day, 30 minute walk
 
 ```
 
-
-* * *
-* * *
 * * *
 
 
-## 🐾 Walks *✿°❀⋆.ೃ࿔*:･. 
+## 🐾 Walks 
 ### Mon, Mar 24 – Fri, Mar 28 
 
 - Monday
