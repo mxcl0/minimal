@@ -12,13 +12,14 @@ I'm Max and I'm available in the Ivy/Charlottesville area for day-time dog walki
 
 Nearly all dogs agree that they want more walks!
 
+* * *
+
 ```
 
 $30/day, 30 minute walk
 
 ```
 
-### Text me your preferred times.
 
 * * *
 
@@ -36,6 +37,9 @@ $30/day, 30 minute walk
   - 𝓒𝓱𝓪𝓻𝓵𝓲𝓮 -- 12pm -- 🦉🦇🐿 Woods
 - Friday
   - 𝓒𝓱𝓪𝓻𝓵𝓲𝓮 -- 12pm -- 🌲🌿🐎 Hills
+
+* * *
+
 
 ![CHL2](https://dogwalks.mxc.lv/assets/img/chl2.jpg)
 
