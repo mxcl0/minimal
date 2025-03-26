@@ -13,6 +13,8 @@ layout: default
 Nearly all dogs agree that they want more walks!
 
 * * *
+* * *
+* * *
 
 ```
 
