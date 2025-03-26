@@ -4,7 +4,7 @@ layout: default
 
 ![CHL](https://dogwalks.mxc.lv/assets/img/chl.jpg)
 
-## It can be **tough** to get enough steps a day for your pup's _energy_ and _health_.
+## It can be **tough** to get enough steps a day for your pup's energy and health.
 
 ### I'm Max and I'm available in the Ivy/Charlottesville area for day-time dog walking.
 
